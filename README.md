@@ -26,8 +26,8 @@ Main Dependencies Used:
 ------------------------------------------------------------------------------------
 
 ![WhatsApp Image 2022-04-25 at 6 47 49 PM](https://user-images.githubusercontent.com/92626479/165097026-6b754fda-c939-4b3a-8067-45019a9438c7.jpeg)
-
+![WhatsApp Image 2022-04-25 at 6 47 48 PM (1)](https://user-images.githubusercontent.com/92626479/165097047-2edff181-31c3-4b46-aa53-05bbcfb42923.jpeg)
 
 -------------------------------------------------------------![WhatsApp Image 2022-04-25 at 6 47 48 PM](https://user-images.githubusercontent.com/92626479/165097060-329a6444-4db0-4c64-85f4-f40406fe78bf.jpeg)
 ------------------------
-![WhatsApp Image 2022-04-25 at 6 47 48 PM (1)](https://user-images.githubusercontent.com/92626479/165097047-2edff181-31c3-4b46-aa53-05bbcfb42923.jpeg)
+
